@@ -1,0 +1,1 @@
+# adoptami_privacy_policy
